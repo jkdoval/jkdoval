@@ -1,4 +1,9 @@
 ## Hi there 👋
+Ola, me chamo Camy!
+Sou uma garota que particularmente ama ler livros, de preferencia de dark romance e suspense, gosto de usar roupas do estilo streetwear de cores brancas, pretas, beges, enfim, cores neutras e camisas de estampas inusitadas. Adoro passar um tempo e brincar com a minha gata lua, isso quando náo estou lendo, mexendo no celular, ouvindo musica ou me arrumando para sair, alias, eu amo sair, acredito que tiro um tempo para mim, que em casa eu mesma nao consigo. 
+Acho que os momentos em que passo com meus amigos seja o melhor... Distrair a mim mesma, gosto de tirar a ideia de que meus pais ja foram, uma dor inacabavel que eu particularmente nao desejo nem ao meu pior inimigo, mas tudo bem, a vida é feita de fases, e nós seres precisamos entender e acreditar nisso. 
+Sou feliz por poder ter as companhias que eu tenho, é gratificante saber que tenho pessoas para confiar e estar ao meu lado, a vida nunca me trouxe muitas coisas boas, entao eu aprendi a valorizar os bons e raros momentos em que tenho com aqueles que me amam e gostam da minha pessoa. 
+Todos nós precisamos entender que nada é por acaso, no final sempre há um propósito, muitas vezes eu mesma nao entendo o meu próprio proposito... Tipo: pq será que perdi meus pais a esta idade e pq fui obrigada a passar por tudo oq passei? Na real, só aceito o meu destino. 
 
 <!--
 **jkdoval/jkdoval** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
